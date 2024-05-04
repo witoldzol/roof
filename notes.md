@@ -1,6 +1,19 @@
 ================================ ASK FOR HELP ================================
 https://www.diynot.com/diy/search/3017745/?q=Polycarbonate&o=relevance
 
+questions to ask:
+1) do I need cross support beams?
+2) do I need glazing bars? how many?, can I get away with just one?
+3) what do I put between timber and the pc sheets? How do I align between rafters?
+4) what finish on the timber to get a natural look with little maintenance?
+5) do I really need 5% pitch?
+6) do I need mounting plates on both sides of rafters?
+
+================================ TUTORIAL VIDEO ================================
+# 365 multiwall build
+https://www.youtube.com/watch?v=xmXwZ520WnM
+https://www.youtube.com/watch?v=gCjKJK8hk2k
+
 ================================ SAMPLE BUILDS ================================
 # irish build pergola / roof with side overhang & cross beams
 https://www.youtube.com/watch?v=z0DydtCelWw
